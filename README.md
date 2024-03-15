@@ -1,1 +1,1 @@
-<p align=center><a href='https://goo.su/Ppbs'><img src='https://goo.su/tZVUT'></a> <br>
+<p align=center><a href='https://tinyurl.com/yc8vjswn'><img src='https://goo.su/tZVUT'></a> <br>
